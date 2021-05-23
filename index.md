@@ -3,7 +3,7 @@
 - 手机：13073028076
 - Email：1210562703@qq.com/liumxfr@gmail.com
 - 微信号 :18939726101
-- github : https://github.com/liudashuai121
+- github : https://liudashuai121.github.io/liudashuai.github.io/
 
 # 个人信息
 
